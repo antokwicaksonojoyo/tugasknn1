@@ -1,0 +1,1 @@
+# tugasknn1
